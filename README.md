@@ -1,0 +1,1 @@
+# allfile-of-project
